@@ -77,7 +77,7 @@ Organizing complete!
 
 ## 🧑‍💻 Author
 
-**Amol Manges Hate**
+**Amol Mangesh Hate**
 
 ---
 
